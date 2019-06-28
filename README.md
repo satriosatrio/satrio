@@ -1,0 +1,2 @@
+# satrio
+pengen belajar
